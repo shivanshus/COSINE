@@ -1,2 +1,2 @@
 # COSINE
-Center of Science Innovation &amp; Entrepreneurship
+Center Of Science INnovation &amp; Entrepreneurship
